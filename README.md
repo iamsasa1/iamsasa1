@@ -1,4 +1,4 @@
-Hey👋! I am Sasanka Herath 🤝 & I am Undergraduate 🎓 from Sabaragamuwa University of Sri Lanka 😇. I am Student 🧑‍💻, Web Developer 👨‍💻, & Volunteer...!
+Hey👋! I am Sasanka Herath 🤝 & I am Undergraduate 🎓 from Sabaragamuwa University of Sri Lanka 😇. I am Student 🧑‍💻, Developer 👨‍💻, & Volunteer...!
 
 •	🔭 I’m currently working on my Academic Activities 📚, Own Projects 💡 & University Evaluation Projects 😊...
 
